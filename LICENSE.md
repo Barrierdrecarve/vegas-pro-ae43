@@ -1,4 +1,4 @@
-# 
+# Avançado Adobe Premiere Pro para PC addons é o melhor Adobe Premiere Pro para PC addons com rolos de piano e graduação de cor. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
